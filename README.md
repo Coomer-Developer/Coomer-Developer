@@ -8,6 +8,6 @@
 
 **CONTACT:**
 <br>
-Email-Contact: dling@gmail.com
+Email-Contact: dlingdeveloper@gmail.com
 <br>
 Discor-Tag: CoomerDeveloper#0276
